@@ -1,4 +1,4 @@
 # LAB2_PAF
 
 
-buruwa
+plynkoo wada nodiii
